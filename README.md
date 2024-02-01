@@ -1,1 +1,0 @@
-# Jindo-Dog.github.io
